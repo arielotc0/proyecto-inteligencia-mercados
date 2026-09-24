@@ -1,5 +1,11 @@
-# proyecto-inteligencia-mercados
-"Proyecto piloto cloud para inteligencia de mercados"
+*JAIME ARIEL TAPIA CEVALLOS*
 
-Ariel Tapia 
-1718642505
+
+Proyecto piloto cloud para inteligencia de mercados
+
+
+MARKETING 
+
+FUTBOL-FIESTA-MUJERS
+
+2001
